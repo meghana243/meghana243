@@ -1,4 +1,6 @@
 ## Hi there 👋
+![](![image](https://github.com/meghana243/meghana243/assets/119942560/a3f68dc7-d8e1-4445-9492-302e068606a7))
+
 
 <!--
 **meghana243/meghana243** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
